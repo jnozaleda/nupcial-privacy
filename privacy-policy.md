@@ -57,4 +57,4 @@ Cualquier cambio futuro se publicará en esta página con la fecha actualizada.
 ## Contacto
 
 Si tienes preguntas sobre esta política de privacidad, puedes contactarnos en:
-**[tu-email@dominio.com]**
+**281591306+jnozaleda@users.noreply.github.com**
